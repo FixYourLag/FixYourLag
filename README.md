@@ -1,4 +1,4 @@
-I am Michael M (16, M) but mainly go by Fishboy1975 online (occasionally FixYourLag)
+I am Michael M but mainly go by Fishboy1975 online (occasionally FixYourLag)
 
 I am an student studying in the UK and am taking 4 A levels (Physics, Maths, Further Maths And Computer Science)
 
