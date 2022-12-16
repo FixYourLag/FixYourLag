@@ -1,4 +1,4 @@
-I am Maddy M (She/Her) but mainly go by FixYourLag online (previously Fishboy1975)
+I am Maddy M (She/Her) but mainly go by FixYourLag online
 
 I am an student studying in the UK and am taking 3 A levels (Physics, Maths And Computer Science)
 
